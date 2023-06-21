@@ -1,1 +1,1 @@
-Katerina, Version Control 
+Katerina, Version Control certification
